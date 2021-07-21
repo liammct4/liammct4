@@ -1,5 +1,4 @@
-Liam M
-Manchester, UK
+Liam M, Manchester, UK
 
 Contact:
   Email: Lmcrailt4@gmail.com
